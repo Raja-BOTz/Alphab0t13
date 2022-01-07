@@ -1,3 +1,3 @@
 /*
-Support channel ZEEONE OFC
+Support channel RAJA × HOSTING
 */
